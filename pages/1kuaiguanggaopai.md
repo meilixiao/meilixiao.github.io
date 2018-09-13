@@ -3,4 +3,4 @@
 
 为了不让我们所经历的这一切还没有被人知道就已经被遗忘，我有义务把它们写下来：写下这些充满创意和力量的行动，写下政府的打压怎样作用在我们身上，写下我们的成长与彷徨。
 
-![图片注释，但不会显示](https://meilixiao.github.io/pics/1/pink1.JPG)
+![pink1-c](https://meilixiao.github.io/pics/1/pink1.JPG)
